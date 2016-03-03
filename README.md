@@ -1,1 +1,1 @@
-# Pater
+Protože sem byl donucen
